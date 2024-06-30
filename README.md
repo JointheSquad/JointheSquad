@@ -1,0 +1,8 @@
+- 👋 Hi, we're @JointheSquad!
+- SQUAD: Uniting fans, empowering athletes, and redefining Social Media for Sports!
+- Think of SQUAD as:
+    - TikTok, but for Sports!
+    - Marketplace, but buying from your idol!
+    - O﻿nlyFans, but for athletes
+- Website: https://squadd.my.canva.site/
+- 👀 We're the newest short video and Marketplace platform focused 100% on sports!
